@@ -2,7 +2,7 @@
 airdrop dexon
 #Share
 #AirDrop
-Join di : https://bit.ly/2VlnG7t
+Join di : https://cobinhood.com/?referrerId=0c798a16-8b6c-4616-9813-f5b309f4e1d9
 Selesain missi nya di : http://bit.ly/newmissionnn
 =====================================
 Missi I : Telegram,Wchat,Line,Weibo,Tweeter
